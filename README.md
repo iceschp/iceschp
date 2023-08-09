@@ -1,6 +1,6 @@
 ### Hiii 👋 🌺
 
-my name is Warunya, also nickname is Ice. currently, i am a recent graduate and do coding and ux designing stuff.
+my name is Warunya, also nickname is Ice. currently, i do coding and ux designing stuff.
 
 open for hiring (bkk-based & relocate) 💖
 
